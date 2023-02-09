@@ -40,7 +40,7 @@ A Blood Rose, in full bloom...
 
 ![alt text](https://substackcdn.com/image/fetch/w_1456,c_limit,f_webp,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F0cd9505e-79d5-4f1f-a343-fa1fc1ac405b_1587x1776.png)
 
-![alt text](https://substackcdn.com/image/fetch/w_1456,c_limit,f_webp,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2F4a278948-2e79-41b0-83dd-8c633d65ff6a_1587x2507.png)
+![alt text](https://substackcdn.com/image/fetch/w_1456,c_limit,f_webp,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Ff7d750ae-8780-48cf-9e08-66ca355a51f2_1456x2166.png)
 
 ![alt text](https://substackcdn.com/image/fetch/w_1456,c_limit,f_webp,q_auto:good,fl_progressive:steep/https%3A%2F%2Fsubstack-post-media.s3.amazonaws.com%2Fpublic%2Fimages%2Fe079a751-32f9-4b1c-8ffd-63e821c33a1f_1587x1764.png)
 
