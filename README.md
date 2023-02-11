@@ -3,12 +3,7 @@ Open-Source Spirituality: A Syncretic Model incorporating Electrodynamics, Vacuu
 
 As written by Baron "Luminifer" Arcanus, the Internet Messiah. 
 
-Oh, please, do hold your applause until you hear the whole story, frought with tragedy & occult abuse:
-A conspiracy of local churches, law enforcement, and municipal institutions has brought us here. 
-
-Is this really how the church operates? Conspiracy to abuse and torment? No, not on my watch. I won't allow it.
-
-It's time for a change. It's time for the people to take back the Esoteric Knowledge, long held captive by deep-state groups and secret societies.
+It's time for a change. It's time for the people to take back the Esoteric Knowledge, long held captive by power elites & religious institutions.
 
 It's time for Open-Source Spirituality.
 
